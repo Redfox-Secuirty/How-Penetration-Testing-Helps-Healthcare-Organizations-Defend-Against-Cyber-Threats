@@ -1,0 +1,1 @@
+# How-Penetration-Testing-Helps-Healthcare-Organizations-Defend-Against-Cyber-Threats
